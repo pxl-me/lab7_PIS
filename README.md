@@ -1,0 +1,1 @@
+# lab7 Bodnar O. IS-81
